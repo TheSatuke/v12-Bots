@@ -1,1 +1,1 @@
-25 Star 10 Fork Olduğunda Paylaşılacaktır.
+40 Star 10 Fork Olduğunda Paylaşılacaktır.
